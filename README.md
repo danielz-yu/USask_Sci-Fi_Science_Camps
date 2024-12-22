@@ -1,1 +1,1 @@
-# USask_Sci-Fi_Science_Camps
+# Sci-Fi Science Camps | University of Saskatchewan
